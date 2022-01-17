@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zoeysnowflying
+- 👀 I’m interested in tennis, hiking, drone, standup comedy
+- 🌱 I’m currently Data Analyst to be. learning python, R, statistics, PowerBI ... and all the complementary skillsets as Data Analyst
+- 💞️ I’m looking to collaborate on a project where i can apply my skillsets as Data Analyst, and eventually as a tech-savvy Product marketer SaaS with 3-year experience. 
+- 📫 Pls don't hesitate to reach out by email: xf.zhang199@gmail.com or Linkedin: https://www.linkedin.com/in/zoeyxuefeizhang/
