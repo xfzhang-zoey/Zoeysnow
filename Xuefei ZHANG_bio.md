@@ -2,4 +2,4 @@
 - 👀 I’m interested in innovation, hiking, drone, standup comedy, geopolitics, contech...
 - 🌱 I’m currently a junior Data Analyst using Python, R, SQL... and all the complementary & indispensable skillsets for a qualified Data Analyst (Tableau software, PowerBI, MS Excel; statistics, communication, questionning....)
 - 💞️ I’m looking forward to collaborating on a project where I can apply my skillsets as Data Analyst, and eventually as a tech-savvy Product marketer SaaS. 
-- 📫 Officially I'm available on email: xf.zhang199@gmail.com or Linkedin: https://www.linkedin.com/in/zoeyxuefeizhang/ and any other media that you can find out on the internet. 
+- 📫 Officially I'm available on email: xf.zhang199@gmail.com or Linkedin: https://www.linkedin.com/in/zoeyxuefeizhang/ and any other media on the internet (NB: GDPR compliant). 
